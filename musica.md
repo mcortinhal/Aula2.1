@@ -1,3 +1,0 @@
-Nessas Horas
-Segredos
-Despacito
