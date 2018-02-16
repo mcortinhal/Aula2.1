@@ -1,1 +1,3 @@
-# Aula2.1
+Angelina Jolie
+Nicole Kidman
+Jessica Parker
