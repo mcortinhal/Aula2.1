@@ -1,3 +1,4 @@
 Angelina Jolie
-Nicole Kidman
+Jessica Alba
 Jessica Parker
+Alice Silverstone
